@@ -2,7 +2,7 @@
 
 I'm a Junior Front End Developer
 
-Since I’ve known what programming is, that I really love him✨
+Since I’ve known what programming is, that I really love it✨
 
 - 👩🏻‍🍳 Change the world of cooking to the world of programming 👩🏻‍💻
 - 🐱🐶 I love animals, have a cat and a dog
